@@ -1,4 +1,4 @@
-# 
+# Gimp for macOS new Plugin - 3D rendering and shortcut customization offers the most advanced Gimp for macOS plugin, with 3D rendering and shortcut customization. Ideal for
 
 
 
